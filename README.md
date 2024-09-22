@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Imabelliz
 - 🌱 I’m currently learning... Russian, Japanese, and Spanish on Duolingo
 - 📫 How to reach me: imabelliz@hotmail.com
-- 😄 Pronouns: She/Her/They/Them 🏳️‍⚧️🏳️‍🌈
+- 😄 Pronouns: She/Her/They/Them 🏳️‍⚧️🍳
 - ⚡ Fun fact: Rat is short for Ratthew
 
 <!---
